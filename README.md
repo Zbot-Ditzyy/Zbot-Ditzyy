@@ -1,6 +1,7 @@
 ## Hey, User Z Bot
 <p align="center"><img src="https://s4.gifyu.com/images/20210316_004856.gif" alt="Bt">
 
+## Hanya Seseorang Yang gabut hehe:v
 
 ## Contact Me
 
